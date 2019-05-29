@@ -1,0 +1,1 @@
+# KinglinkCobain.github.io
